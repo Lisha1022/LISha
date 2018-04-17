@@ -1,2 +1,0 @@
-# LISha
-songs to learn 
